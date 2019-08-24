@@ -12,9 +12,9 @@ Though I have lived in Los Angeles proper, I don't anymore but when asked and it
 
 ### I'm a web developer
 
-I've had a blog and have had @evhead fix a bug or two for me in the early days of Blogger. I'm on twitter and got an email from @jack before I knew jack. I've <a href="oleole.com">started up</a> and <a href="pets.com">burned out</a>. I've worked for the world leader and it's in the game. I've been moving forward for so many years now.
+I had a blog and have had @evhead fix a bug or two for me in the early days of Blogger. I'm on twitter and got an email from @jack before I knew jack. I've <a href="oleole.com">started up</a> and <a href="pets.com">burned out</a>. I've worked for the world wide leader and it's in the game. I've been moving forward for so many years now, I've lost track.
 
-### I'm a homebrewer
+### I'm a home brewer
 
 I brew beer at home. It's fun and it tastes good most of the time. 
 
