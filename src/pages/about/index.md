@@ -18,10 +18,12 @@ I'm web a developer and I've seen things like Forrest Gump. But only over intern
 
 ### I'm a home brewer
 
-I'm a <a href="https://www.instagram.com/mirbrewing/">home brewer</a>. It's a fun hobby and tastes great most of the time. 
+I'm a <a href="https://www.instagram.com/mirbrewing/">home brewer</a>. It's a fun hobby and once it hits your lips, it's so good. 
 
 ### I'm a dad
 
-I'm a dad and I have a super cool wife. _She keeps it pumping straight to my heart._ We're raising three lovely kids. 
+I'm a dad and I have a rad wife. _She keeps it pumping straight to my heart._ Yeah just like the song. 
 
-Leave me alone unless you have something good to say.
+We're raising three lovely kids. 
+
+Hit me up if you have something to say. first and last name @ gmail
